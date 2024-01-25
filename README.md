@@ -31,7 +31,6 @@ I am constantly eager to learn and adapt to new challenges and believe in the tr
 - Website Development for Library Bennett University.
 - Initiated implementation of Single-Sign-System at Bennett University.
 - Website Development for NGO (Kaizen Lets Evolve Foundation).
-- Implemented ticketing issuing platform for Library Bennett University.
 
 <!--
 Here are some ideas to get you started:
