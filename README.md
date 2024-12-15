@@ -1,6 +1,6 @@
 ### Hi there, I'm Aravind! 👋
 
-I am delighted to serve as a Junior Professional Assistant at Bennett University, The Times Group. I've gained valuable experience throughout my career while working at the University Library, University of Kerala, and the Central Library, IIT Delhi. My expertise lies in library management, IT equipment, and ensuring the smooth day-to-day operations of libraries. I take pride in coordinating library activities, and community services, and implementing innovative solutions such as installing and customizing Coral ERM for Central Library, IIT Delhi.
+I am delighted to serve as a Professional Assistant at Bennett University, The Times Group. I've gained valuable experience throughout my career while working at the University Library, University of Kerala, and the Central Library, IIT Delhi. My expertise lies in library management, IT equipment, and ensuring the smooth day-to-day operations of libraries. I take pride in coordinating library activities, and community services, and implementing innovative solutions such as installing and customizing Coral ERM for Central Library, IIT Delhi.
 
 I am constantly eager to learn and adapt to new challenges and believe in the transformative power of knowledge dissemination through libraries. Please feel free to connect with me to talk about collaborations and explore opportunities to enhance the world of libraries together.
 
